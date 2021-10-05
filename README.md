@@ -1,2 +1,2 @@
 ## Web Design Client-Lauren Caldwell Illustrations
-[Click to view website] www.laurencaldwellillustrations.com
+Click link to view website :point_right: www.laurencaldwellillustrations.com
